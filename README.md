@@ -6,6 +6,6 @@ I love writing code that turns ideas into reality. If your project challenges th
 - **Passion for Finance, Blockchain, and Art:** Forever chasing the next breakthrough.
 - **Collaborative spirit:** I find myself drawn to projects that quietly defy expectations.
 
-** Got something intriguing? Let's talk. **
+Got something interesting? Let's talk.
 
 [LinkedIn](https://www.linkedin.com/in/guillermodsm/)
